@@ -2,7 +2,7 @@
 Gaurav Kumar BTech Mechanical Engineering
 ## Day 1
 30th of July
-###My first day of the induction program started with a visit to Gurudwara Sahib at 8:30 AM, as mentioned in the schedule. The Gurudwara looked very peaceful and beautiful — like a flying ship in the sky. Inside, we saw the holy Guru Granth Sahib, and after the prayers, we were offered tea and sandwiches. That moment felt very calm and spiritual.
+### My first day of the induction program started with a visit to Gurudwara Sahib at 8:30 AM, as mentioned in the schedule. The Gurudwara looked very peaceful and beautiful — like a flying ship in the sky. Inside, we saw the holy Guru Granth Sahib, and after the prayers, we were offered tea and sandwiches. That moment felt very calm and spiritual.
 
 Around 9:20 AM, I headed towards the auditorium for the main induction program. Before entering, there was a registration desk where my ID was checked. My name was found in the computer list, and I was given a file containing the campus prospectus, a diary, and a pen.
 
@@ -16,7 +16,7 @@ After the program ended, I returned home feeling excited about the journey ahead
 
 ## Day 2
 1st of August
-###The second day of my induction program started with a session at 9:00 AM. Many teachers and faculty members were present. They shared valuable information about the campus, its facilities, and different departments. They also gave motivational speeches, encouraging us to make the most of our time here. It felt good to hear their experiences and advice.
+### The second day of my induction program started with a session at 9:00 AM. Many teachers and faculty members were present. They shared valuable information about the campus, its facilities, and different departments. They also gave motivational speeches, encouraging us to make the most of our time here. It felt good to hear their experiences and advice.
 
 After the induction sessions, a proficiency test was scheduled for all students. The test was related to Maths and English, and it started at 12:30 PM. A professor came in to explain the instructions and rules of the test.
 
@@ -28,7 +28,7 @@ In my opinion, Day 2 was a good mix of learning and testing. It helped me unders
 
 ## Day 3
 4th of August
-###The third day of the induction program was scheduled to start at 8:30 AM, but due to some delay with the mic setup, it actually began around 9:00 AM.
+### The third day of the induction program was scheduled to start at 8:30 AM, but due to some delay with the mic setup, it actually began around 9:00 AM.
 
 The session started with an introduction to something called Columbus Apex 80 — though I didn’t fully understand it, it seemed related to technology or tools used in our studies.
 
