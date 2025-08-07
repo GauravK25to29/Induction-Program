@@ -32,13 +32,13 @@ Gaurav Kumar BTech Mechanical Engineering
 
 ### The session started with an introduction to something called Columbus Apex 80 — though I didn’t fully understand it, it seemed related to technology or tools used in our studies.
 
-### After that, a doctor (or professor) gave us a thoughtful lecture on human rights and universal human happiness. The topic was deep but very important. The speaker talked about values like respect, kindness, and understanding others — not just for engineers, but for life in general. I found this lecture very meaningful and eye-opening.
+### After that, Dr. Priya Darshni Ma'am gave us a thoughtful lecture on human values and universal human happiness. The topic was deep but very important. The speaker talked about values like respect, kindness, and understanding others — not just for engineers, but for life in general. I found this lecture very meaningful and eye-opening.
 
-### Next, we were given information about the conduct of examinations — how exams are managed, what rules we must follow, and how to avoid unfair practices.
+### Next, we were given information about the conduct of examinationsband introduction about our campus and faculty provides by campus. 
 
 ### After that, there was a surprising but interesting part — someone gave a talk about cars, especially sports cars, and how automobile technology is used in real life. It was fun and informative.
 
-### The final session was by Mr. Jaswant Singh from CSC, who gave a strong motivational speech about engineering as a field. He explained how engineering shapes the world and encouraged us to stay focused, curious, and passionate.
+### The final session was by Mr. Jaswant Singh from CS, who gave a strong motivational speech about engineering as a field. He explained how engineering shapes the world and encouraged us to stay focused, curious, and passionate.
 
 ### By the end of this day, I felt more inspired and positive. It was a mix of values, technology, and motivation — a great combination to move forward.
 
