@@ -8,7 +8,7 @@ Gaurav Kumar BTech Mechanical Engineering
 
 ### After entering the auditorium, the session began with a welcome note from a doctor (probably a faculty head). Later, some technical issue happened with the mic or sound system, but it was managed.
 
-### Then, Sabjeet Singh Sir gave us a motivational speech which really inspired me. A chief guest also gave a powerful talk and introduced us to the vision of the college. I don’t remember the name exactly, but the speech was very encouraging.
+### Then, Sehijpal Singh Principal Sir gave us a motivational speech which really inspired me. A chief guest also gave a powerful talk and introduced us to the vision of the college. I don’t remember the name exactly, but the speech was very encouraging.
 
 ### We also got to know that the campus is very big and spread across a lot of land.
 
