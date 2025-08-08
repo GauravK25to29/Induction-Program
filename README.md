@@ -83,7 +83,7 @@ This day showed how the campus supports personal growth, leadership, and discipl
 
 We began with regular classes, then **Dr. Lakveer Singh Khana** explained **CML** and its link with free **NPTEL/IIT courses** for technical growth.  
 
-**Dr. Jagveer Singh** spoke about the **NSS**, focusing on environmental awareness and community service.  
+**Dr. Jasveer Singh** spoke about the **NSS**, focusing on environmental awareness and community service.  
 
 With this, my induction program officially ended — not just an introduction to the college, but a journey of motivation, opportunity, and self-growth.  
 
