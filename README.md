@@ -1,7 +1,7 @@
 # 🎓 Induction Program – Campus Journey  
 **Gaurav Kumar**  
 _B.Tech Mechanical Engineering_
-at @GNDEC
+@GNDEC
 
 ---
 
