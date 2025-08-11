@@ -18,7 +18,7 @@ _B.Tech Mechanical Engineering_
 ## 📅 Day 1 – 30th July  
 ✨ **Peace, Learning & Motivation**  
 
-The first day began with a visit to **Gurudwara Sahib** at 8:30 AM, as scheduled. The Gurudwara looked peaceful and beautiful — like a flying paper in the sky. Inside, we saw the holy **Guru Granth Sahib**. After prayers, tea and snakes were served, creating a calm and spiritual inside me.  
+The first day began with a visit to **Gurudwara Sahib** at 8:30 AM, as scheduled. The Gurudwara looked peaceful and beautiful — like a flying paper in the sky. Inside, we saw the holy **Guru Granth Sahib**. After prayers, tea and snacks were served, creating a calm and spiritual inside me.  
 
 By 10:30 AM, I reached the auditorium for the main induction program. At registration, my ID was checked, my name confirmed, and I received a **prospectus, diary, and pen**.  
 
